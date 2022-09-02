@@ -94,4 +94,11 @@ Stay focused on the the course you are not good at multi tasking you can not do 
 
 Have you developed a habit of exploring?
 
-In the form of habit of exploring
+
+In the form of habit of exploring, things im interested in such as architecture i love exploring all the differnt designs from house designs 
+as well building  materials being a builder myself im interested in new innervated ideals.
+
+ 
+ Is there something over which you have gained a degree of mastery before in your life? Gymnastics, Rubik's Cubes, A Video Game? What did it take?
+ 
+ 
